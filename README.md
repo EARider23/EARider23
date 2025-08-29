@@ -1,5 +1,5 @@
 # 💫 About Me:
-Im Enthusiastic Techy Person.<br>Working on Youtube, Freelancing, Own Company.<br><br>Want to Create AI in My Repo.<br>
+Im Enthusiastic Techy Person.<br>Working on Youtube, Freelancing, Own Company.<br>
 
 
 ## 🌐 Socials:
